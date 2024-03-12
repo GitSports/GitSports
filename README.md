@@ -1,0 +1,7 @@
+- 👋 hello internet I am GitSports aka wiisports200 
+- 👀 I’m interested in tech and gaming
+- 🌱 I’m currently learning scratch and looking to learn python and MAYBE C++
+- email to request collabs
+- 📫 my email is jaxxsonsStuff.computers@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I am attending computer science class in 2025!
