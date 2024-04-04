@@ -1,4 +1,4 @@
-- 👋 hello internet I am GitSports aka wiisports200 
+- 👋 hello internet I am GitSports aka jaxxsonsStuff on scratch on YT
 - 👀 I’m interested in tech and gaming
 - 🌱 I’m currently learning scratch and looking to learn python and MAYBE C++
 - email to request collabs
