@@ -1,7 +1,7 @@
-- 👋 hello internet I am GitSports aka jaxxsonsStuff on scratch on YT
+- 👋 hello internet I am SuperEpicMan
 - 👀 I’m interested in tech and gaming
 - 🌱 I’m currently learning scratch and looking to learn python and MAYBE C++
 - email to request collabs
-- 📫 my email is jaxxsonsStuff.computers@gmail.com
+- 📫 my email [COMING SOON]
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am attending computer science class in 2025!
+- ⚡ Fun fact: I am cool
